@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi 👋, I'm Hayder Aleissa<br>Senior Software Engineering Student @ KFUPM<br>I’m looking to collaborate on any project with creative ideas<br>📫 You can contact me through hayder.m.aleissa@gmail.com
+Hi 👋, I'm Hayder Aleissa<br>Fresh Software Engineering Graduate from KFUPM<br>I’m looking to collaborate on any project with creative ideas<br>📫 You can contact me through hayder.m.aleissa@gmail.com
 
 
 ## 🌐 Socials:
